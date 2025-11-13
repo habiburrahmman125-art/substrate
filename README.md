@@ -11,3 +11,4 @@ We appreciate your understanding and ongoing support throughout this transition.
 Best Regards,
 
 Parity Technologies
+Iam new create readme.md new commit please Count me in rayls Airdrop campaign in galaxy app '' thanks gamine you very important news tell me bg opochonitg git hub
